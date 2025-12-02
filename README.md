@@ -1,3 +1,5 @@
+hey theres a person named wolfmom birdcage whatever that sits around dr-hc 18+ and they groomed me and a shit ton of other minors back in 2018 they are mid-late 20s dont talk to them (personal opinion) i was like 14-15 at the time & the youngest kid there was fucking 12 years old 😊 watch your backs and your fronts!!! https://github.com/WolfmomBirdCages i would and will never let that shit go. was back in og ut area iykyk
+
 <p align="center">
   <img width="500" height="500" src="https://github.com/user-attachments/assets/cbc8476c-b849-4a8f-a2f7-a9477d6bb7c0">
 </p>
