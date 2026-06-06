@@ -1,5 +1,3 @@
-hey theres a person named wolfmom birdcage whatever that sits around dr-hc 18+ and they groomed me and a shit ton of other minors back in 2018 they are mid-late 20s dont talk to them (personal opinion) i was like 14-15 at the time & the youngest kid there was fucking 12 years old 😊 watch your backs and your fronts!!! https://github.com/WolfmomBirdCages im tron cat im ace im wolf haley im lil b the based god
-
 <p align="center">
 <img width="110" height="70" src="https://github.com/user-attachments/assets/477c10c2-256a-4395-8069-bdb1eff1e53c">
 </p>
